@@ -1,2 +1,0 @@
-# googredayo
-Googleじゃないよ
